@@ -12,3 +12,5 @@ Aeryn Sun wurde wie die meisten Peacekeeper an Bord eines Kommandoschiffes gebor
 
 > You can shut the frell up, I think, because if you don't take the 
 > translator microbes, you don't participate—tell him that.
+
+<img src="https://vignette.wikia.nocookie.net/farscape/images/d/d1/Aeryn_001.jpg/revision/latest?cb=20070107210537">
