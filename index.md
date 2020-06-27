@@ -9,3 +9,6 @@ Aeryn Sun wurde wie die meisten Peacekeeper an Bord eines Kommandoschiffes gebor
 * Bevorzugte Waffen: Pulse pistol, Pulse rifle, Heavy pulse rifle
 * Gespielt von: Claudia Black
 * Kinder: D'Argo Sun-Crichton
+
+> You can shut the frell up, I think, because if you don't take the 
+> translator microbes, you don't participate—tell him that.
